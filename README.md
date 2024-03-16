@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Matano Patrick,
 - 👀 I’m interested in developing Business on Technology sector,
 - 🌱 I’m currently learning Business Information Technology.
-- 📫 How to reach me Email; matanoh@gmail.com
+- 📫 How to reach me Email; matanohpee@gmail.com
 - Cell Phone; 0792179877
 - 😄 Pronouns...HE/HIM...
 <!---
